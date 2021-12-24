@@ -1,1 +1,1 @@
-# YurtDisi
+# YurtD-s-Projesi
